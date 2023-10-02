@@ -1,7 +1,3 @@
-Certainly! Let's expand on the "About Me" section and provide more details about your experience, projects, and interests.
-
----
-
 # Hi there! 👋 I'm RAMAZAN GOREN
 
 ## 🚀 About Me
